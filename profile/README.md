@@ -32,7 +32,7 @@ When shopping for a **non-toxic air fryer**, consider the following factors:
   <li>Dishwasher-safe parts for easy cleaning</li>
 </ul>
 
-[Check Price on Amazon](#)
+[Check Price on Amazon](https://amzn.to/3XwTp3F)
 
 ---
 
@@ -46,7 +46,7 @@ When shopping for a **non-toxic air fryer**, consider the following factors:
   <li>Large capacity (6 quarts) for family-sized meals</li>
 </ul>
 
-[Check Price on Amazon](#)
+[Check Price on Amazon](https://amzn.to/3XwTp3F)
 
 ---
 
@@ -60,7 +60,7 @@ When shopping for a **non-toxic air fryer**, consider the following factors:
   <li>Compact size, perfect for small kitchens</li>
 </ul>
 
-[Check Price on Amazon](#)
+[Check Price on Amazon](https://amzn.to/3XwTp3F)
 
 ---
 
@@ -81,7 +81,7 @@ Avoid air fryers with **PTFE, PFOA, BPA, and cheap plastic components**, as they
 
 Choosing the **best non-toxic air fryer** ensures you enjoy healthier meals without harmful chemicals. Whether you prefer a **stainless steel**, **ceramic-coated**, or **glass-basket** air fryer, there are excellent toxin-free options available.
 
-🔹 **Recommended Pick:** [Ninja Foodi Air Fryer (Check Price)](#)
+🔹 **Recommended Pick:** [Ninja Foodi Air Fryer (Check Price)](https://amzn.to/3XwTp3F)
 
 Have you tried a non-toxic air fryer? Let us know your experience in the comments below!
 
